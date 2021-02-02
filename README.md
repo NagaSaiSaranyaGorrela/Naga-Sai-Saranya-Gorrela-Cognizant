@@ -1,1 +1,0 @@
-# Naga-Sai-Saranya-Gorrela-Cognizant
